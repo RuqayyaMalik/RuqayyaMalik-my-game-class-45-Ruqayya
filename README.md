@@ -1,1 +1,1 @@
-# RuqayyaMalik-my-game-class-45-Ruqayya
+# treasure-hunt
